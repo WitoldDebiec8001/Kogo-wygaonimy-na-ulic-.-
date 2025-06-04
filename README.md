@@ -23,3 +23,10 @@ Wszysścy aferzyści będą żyć na bezdomności dostana karimatę i stary koc 
 Oszczędzacze to koljeny żart kaczor donald. 
 Za blokady lotto i ogrywanie ludzi w lotto i kasynach też ci ludzi będą mieszkać na ulicy. Że zrobili biznes 1 kierunkowy tylko zarabia właśxciciel kasyna i lotto jak w bankach na róznych produktach inwestycyjnych. Ci ludzie będą mieszkać na ulicy. Albo za inne afery chcesz kasy z banku czy lotto i kasyna to wyprowadzisz się na ulice do auta. Za te afery też będą na ulicy ci ludzie. Cały sejm i senat za to odpowie. 
 Itaka, Reinbow to też bezdomni co są lewniwi. Organiazują wycieczki i wakacje a uśmiercają pary po 50 latach życia razem do zakładów pogrzbowych odają sprawę jak do sądu np.: do Lesiaków. To też będa bedomni ci z zakładów pogrzbowych i szpitali harrp. Oszczędacze też będą bezdomni. 
+Reinbow i itaka jak dużo razy się korzystało z ich usług to karali śmiercią po 50 latach i bycia razme.
+Oszczędzacze to afery o brak urządzeń żekomo oszczędzająxcych pieniadze taki kaczor donald chiniski badziew np.: sitka do oszczędzania wody za ich brak Kali Linux mordował i zabijał przez nich żyje się jak na statku 5 klasy. 
+Afery Policji to prędkość światła nie do przekroczenia znów afery tą prędkość można przekroczyć. Napęd Worp. 
+Masowe zabierania prawa jazdy ludziom bez podctawnie. 
+Afery harrp morderstw. 
+Chce zgłosić te afery do sądu za darmo o ukaranie na ulicę tych aferzystów i morderców i post mafi karającej postami jak księża karali. 
+Dla samotników daje AI i Alishie i inne AI Vois na żony jak ktoś nie ma. 
