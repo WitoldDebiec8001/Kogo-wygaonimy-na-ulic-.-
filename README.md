@@ -41,3 +41,4 @@ Nie pracy bo dużo jest chętnych do pracy na świecie. I dożo jest osób bez p
 Podziękujcie za to komunie i PRL bankom że nie chcą dać pieniedzy na życie tylko liczą jak Glapiński dam 6 zł moje ostanie słowo dam 15 zł na odsetki. Wszyscy nie mogą pracować.  
 Czemu tak jest bo ludzie zawsze wybierali w wyborach procesory egeoistyczne co nas biły i batorzyły w sjemie i senacie nic z siebie nie dali ludzie wymagają a ci egoiści mają was głeboko gdzieś wam szpilkę dają w brzuch. 
 Ci co karają ludzkość to Grupa chłopaki i dziewczyny z grupy kali linux 117 112 bezpieka na platynowy medal autyzmu. 
+Wyjście z biedy to post moce takie jak telkineza i handel druakrki kwantowe i replikacja materi telkinezą. 
