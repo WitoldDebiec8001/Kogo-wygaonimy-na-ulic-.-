@@ -54,3 +54,4 @@ Wiejską 10 rządzi ksiądz z Watykanu. Papierz to pucybut na widok populacji. T
 6. Ludzie co nic nie mają do powiedzenia. Wybory. Zegary, papierosy i bezosy elektryczne kali linux to ludzie wybory 6 kategoria. Stragany dla 6 kategori ludzi i wyborów. Maszyny to ludzie 6 kategoria termiantorzy.  
 Na ulice trzeba wygonić od 5 do 1. Bieda jest przez 1 i 5 kategorie ludzi.
 To ludzie 6 kategori umierają po 100 latach życia. Oni żyja wiecznie. Bezos 5 kategori żyje już 500 lat na ziemi jest po super serum żołnierza chemicznym serum młodości i siły. 
+1 i 5 kategoria żyje w przyszłości. PRL 1 i 5 kategoria stworzyła dla 6 kategori ludzi. 
