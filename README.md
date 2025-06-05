@@ -67,3 +67,5 @@ Kategoria 1 ludzi kobiet mówi biały to szmata bo nie chce księżnej w kocu p�
 Czemu Gwen Tennyson Sweter jest drogi bo jest kaszmirowy i szlachetny. 
 Hakerzy i bardzo bogaci hakerzy to ciecie z kasą i pomysłem z kategori ludzi 6 nie są magami.  
 5,5 i 1 kategoria ludzi to starostwo powiatowe w tym są gwiazdy.  
+1 Kategoria ludzi jest wiecznie i zawsze na wakacjach.
+Widzew i kluby sportowe jak hakerzy są w 6 kategori ludzi. 
