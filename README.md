@@ -76,3 +76,4 @@ Ludzie jak śmieją się z koców w kwiaty i serca ludzi 1 kategori idą do piac
 6 kategoria ludzi dzieli się na ine kategorie ludzi meneli nie magów a hakeów i aganetów. 
 Sklepy 1 kategori ludzi to sklepy: Rumulus, Piotr i Paweł, Aoshoun. 
 6 Kategoria ludzi zostań pies. 
+Elon Mask i Jeff Bezos dla nich to pies 6 kategoria ludzi. 
