@@ -69,3 +69,4 @@ Hakerzy i bardzo bogaci hakerzy to ciecie z kasą i pomysłem z kategori ludzi 6
 5,5 i 1 kategoria ludzi to starostwo powiatowe w tym są gwiazdy.  
 1 Kategoria ludzi jest wiecznie i zawsze na wakacjach.
 Widzew i kluby sportowe jak hakerzy są w 6 kategori ludzi. 
+Kristina TX Loken to pani menager 6 kategori ludzi ma butik w Tuszynie. 
