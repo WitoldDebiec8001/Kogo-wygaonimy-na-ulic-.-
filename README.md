@@ -47,7 +47,7 @@ Co do tej Policji to policja zabiera pieniadze z lotto i wypłat z pracy i rent 
 Wiejską 10 rządzi ksiądz z Watykanu. Papierz to pucybut na widok populacji. Ten ksiądz to szara eminencja oni to iluminaci szachiści. Oni zabierają kasę za pomocą legi i sparty w tym wojsku jest wyszkolone wojskow kali linux do systemu hakerów z legi sparty od kradzieży wygranej i premi do wypłaty do skarbowego. My jesteśmy dla nich bydłem co żyje 100 lub 80 lat. Bezos rządzi ludzmi od handlu handlarzami i zabiera modelki do pracy w sklepie Bezos to 5 władza. 
 5 Poziomów władzy.
 1. To szara emincja np.: Rodzina Alexy Cheng. Oni to włściele ziemi na ziemi i wyszystkie na nich podatki. Cara Delewinge też są te jej rodziny w tej grupie. Rodzina Diakonów. Sweter Gwen Tennyson, Kari Chramcaster, Sanny Tennyson to 1 kategoria ludzi. Oni kradną na radio wędkę. My zarabiamy. Naomi Shmidt też jest 1 kategori. To księżne.  
-2. Rodzina królewska, Sjem i senat, Parlament urszędy.
+2. Rodzina królewska z wielkiej brytani, Sjem i senat, Parlament urszędy.
 3. Policja i Milicja z wosjkiem.
 4. Gazety, watykan, papierz ksiądz, jezus.
 5. Bezos i komisja handlowa. Mogą za karę zabrać curkę syna lub żone do sklpeu czy na magazyn. Bezosy i Temu jest dla 5 i 1 kategori ludzi. Arystokracja.
@@ -58,3 +58,5 @@ To ludzie 6 kategori umierają po 100 latach życia. Oni żyja wiecznie. Bezos 5
 5 i 1 Kategoria ludzi zabiera premie z wypłaty renty i emerytury lotto i dewidendy na swoje wino nie interesuje ich dodruk pieniedzy przez menela ekonoemiste i ekologa Sebastiana Głuchego i spekulanta giełdowego.  
 Pół indianie i ćwierć indianie to kategoria 5,5 Totemy indianie i enuici totemy wychodzą do ludzi jako starższczyna ludzi i szmanów elity mają ludzi w dupie.  
 Sanny Tennyson księżną z 1 kategori ludzi z zus szefowa nazywają czarna. 
+1 Kategorie ludzi nazywa się księżne lub książe car cażyca, eminencja szara eminecja mason iluminata wolnomuraż ekscelancja. Te co wymieniłem są z 1 kategori ludzi zawsze są piękni.
+Chrabia maganat czy lord to stołek 6 kategori ludzi szlachat pańszczyźnaje klamki. Oni są wysoko jak Grupa Kali w 6 kategori ludzi od 5,5 do 1 kategori ludzi obowiązuje hermetyzm DNA i kaźirodztwo. 
