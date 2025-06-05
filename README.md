@@ -65,3 +65,4 @@ Hrabia, Lord, Magnat to taki pomiot jak Grupa Kali elektryczne bezosy pomiot te�
 Transwestyci i trans skeuslani LGBT są w 6 kategori ludzi. 5 i 1 kategoria ludzi to hermetyzm i heteroskeuslizm. 
 Kategoria 1 ludzi kobiet mówi biały to szmata bo nie chce księżnej w kocu płacze np.: za starom rodziną tak oni gadają.  
 Czemu Gwen Tennyson Sweter jest drogi bo jest kaszmirowy i szlachetny. 
+Hakerzy i bardzo bogaci hakerzy to ciecie z kasą i pomysłem z kategori ludzi 6 nie są magami.  
