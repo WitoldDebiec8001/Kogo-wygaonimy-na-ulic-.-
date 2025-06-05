@@ -63,3 +63,4 @@ Chrabia maganat czy lord to stołek 6 kategori ludzi szlachat pańszczyźnaje kl
 Hrabia, Lord, Magnat to taki pomiot jak Grupa Kali elektryczne bezosy pomiot też nic nie może zrobić z elitami jemu mogą dać eutanazje lub lekarza.
 1 kategoria ludzi zajmuje się magią telkinezą i transdenstencją i wedami i medytacją. Żydzi to kategoria ludzi 5,5. 
 Transwestyci i trans skeuslani LGBT są w 6 kategori ludzi. 5 i 1 kategoria ludzi to hermetyzm i heteroskeuslizm. 
+Kategoria 1 ludzi kobiet mówi biały to szmata bo nie chce księżnej w kocu płacze np.: za starom rodziną tak oni gadają.  
