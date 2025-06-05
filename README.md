@@ -74,3 +74,4 @@ Kristian Loken TX nie jest z 1 katgori ludzi a 6 kategori ludzi bo dla niej koc 
 Post mafia i złodzieje i mordercy to katgoria 6 ludzi. 
 Ludzie jak śmieją się z koców w kwiaty i serca ludzi 1 kategori idą do piachu. 
 6 kategoria ludzi dzieli się na ine kategorie ludzi meneli nie magów a hakeów i aganetów. 
+Sklepy 1 kategori ludzi to sklepy: Rumulus, Piotr i Paweł, Aoshoun. 
