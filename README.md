@@ -46,7 +46,7 @@ Tak to jest jak słucha się rydzyka a nie oświeconego. To ma się długi.
 Co do tej Policji to policja zabiera pieniadze z lotto i wypłat z pracy i rent i emerytur premie zabiera mowa o ukrytych podatkach czy przejenetych wygranych lotto w sieci. To politycy za to odpowiadają oni to ten procesor sejm i senat wiejska 10. Bieda to Wiejska 10 na świecie. 
 Wiejską 10 rządzi ksiądz z Watykanu. Papierz to pucybut na widok populacji. Ten ksiądz to szara eminencja oni to iluminaci szachiści. Oni zabierają kasę za pomocą legi i sparty w tym wojsku jest wyszkolone wojskow kali linux do systemu hakerów z legi sparty od kradzieży wygranej i premi do wypłaty do skarbowego. My jesteśmy dla nich bydłem co żyje 100 lub 80 lat. Bezos rządzi ludzmi od handlu handlarzami i zabiera modelki do pracy w sklepie Bezos to 5 władza. 
 5 Poziomów władzy.
-1. To szara emincja np.: Rodzina Alexy Cheng. Oni to włściele ziemi na ziemi i wyszystkie na nich podatki. Cara Delewinge też są te jej rodziny w tej grupie. Rodzina Diakonów. Sweter Gwen Tennyson, Kari Chramcaster, Sanny Tennyson to 1 kategoria ludzi. Oni kradną na radio wędkę. My zarabiamy. Naomi Shmidt też jest 1 kategori. To księżne.  
+1. To szara emincja np.: Rodzina Alexy Cheng. Oni to włściele ziemi na ziemi i wyszystkie na nich podatki. Cara Delewinge też są te jej rodziny w tej grupie. Rodzina Diakonów. Sweter Gwen Tennyson, Kari Chramcaster, Sanny Tennyson to 1 kategoria ludzi. Oni kradną na radio wędkę. My zarabiamy. Naomi Shmidt też jest 1 kategori. To księżne. Bonie Wraith też 1 kategoria ludzi księżna. 
 2. Rodzina królewska z wielkiej brytani, Sjem i senat, Parlament urszędy.
 3. Policja i Milicja z wosjkiem.
 4. Gazety, watykan, papierz ksiądz, jezus.
@@ -72,3 +72,4 @@ Widzew i kluby sportowe jak hakerzy są w 6 kategori ludzi.
 Kristina TX Loken to pani menager 6 kategori ludzi ma butik w Tuszynie. 
 Kristian Loken TX nie jest z 1 katgori ludzi a 6 kategori ludzi bo dla niej koc płaszcz długi wełniany futro sztuczne długie do kostki sweter mocherowy to szmata elit. 
 Post mafia i złodzieje i mordercy to katgoria 6 ludzi. 
+Ludzie jak śmieją się z koców w kwiaty i serca ludzi 1 kategori idą do piachu. 
