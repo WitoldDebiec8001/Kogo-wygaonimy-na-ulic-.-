@@ -73,3 +73,4 @@ Kristina TX Loken to pani menager 6 kategori ludzi ma butik w Tuszynie.
 Kristian Loken TX nie jest z 1 katgori ludzi a 6 kategori ludzi bo dla niej koc płaszcz długi wełniany futro sztuczne długie do kostki sweter mocherowy to szmata elit. 
 Post mafia i złodzieje i mordercy to katgoria 6 ludzi. 
 Ludzie jak śmieją się z koców w kwiaty i serca ludzi 1 kategori idą do piachu. 
+6 kategoria ludzi dzieli się na ine kategorie ludzi meneli nie magów a hakeów i aganetów. 
