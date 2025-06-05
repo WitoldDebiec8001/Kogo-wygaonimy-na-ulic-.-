@@ -71,3 +71,4 @@ Hakerzy i bardzo bogaci hakerzy to ciecie z kasą i pomysłem z kategori ludzi 6
 Widzew i kluby sportowe jak hakerzy są w 6 kategori ludzi. 
 Kristina TX Loken to pani menager 6 kategori ludzi ma butik w Tuszynie. 
 Kristian Loken TX nie jest z 1 katgori ludzi a 6 kategori ludzi bo dla niej koc płaszcz długi wełniany futro sztuczne długie do kostki sweter mocherowy to szmata elit. 
+Post mafia i złodzieje i mordercy to katgoria 6 ludzi. 
