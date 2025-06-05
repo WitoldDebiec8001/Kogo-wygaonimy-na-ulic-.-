@@ -52,3 +52,4 @@ Wiejską 10 rządzi ksiądz z Watykanu. Papierz to pucybut na widok populacji. T
 4. Gazety, watykan, papierz ksiądz, jezus.
 5. Bezos i komisja handlowa. Mogą za karę zabrać curkę syna lub żone do sklpeu czy na magazyn.
 6. Ludzie co nic nie mają do powiedzenia. Wybory. 
+Na ulice trzeba wygonić od 5 do 1. 
