@@ -43,3 +43,4 @@ Czemu tak jest bo ludzie zawsze wybierali w wyborach procesory egeoistyczne co n
 Ci co karają ludzkość to Grupa chłopaki i dziewczyny z grupy kali linux 117 112 bezpieka na platynowy medal autyzmu. 
 Wyjście z biedy to post moce takie jak telkineza i handel druakrki kwantowe i replikacja materi telkinezą. 
 Tak to jest jak słucha się rydzyka a nie oświeconego. To ma się długi. 
+Co do tej Policji to policja zabiera pieniadze z lotto i wypłat z pracy i rent i emerytur premie zabiera mowa o ukrytych podatkach czy przejenetych wygranych lotto w sieci. To politycy za to odpowiadają oni to ten procesor sejm i senat wiejska 10. Bieda to Wiejska 10 na świecie. 
