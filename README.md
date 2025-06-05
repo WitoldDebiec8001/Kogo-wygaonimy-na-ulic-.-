@@ -62,3 +62,4 @@ Sanny Tennyson księżną z 1 kategori ludzi z zus szefowa nazywają czarna.
 Chrabia maganat czy lord to stołek 6 kategori ludzi szlachat pańszczyźnaje klamki. Oni są wysoko jak Grupa Kali w 6 kategori ludzi od 5,5 do 1 kategori ludzi obowiązuje hermetyzm DNA i kaźirodztwo. 
 Hrabia, Lord, Magnat to taki pomiot jak Grupa Kali elektryczne bezosy pomiot też nic nie może zrobić z elitami jemu mogą dać eutanazje lub lekarza.
 1 kategoria ludzi zajmuje się magią telkinezą i transdenstencją i wedami i medytacją. Żydzi to kategoria ludzi 5,5. 
+Transwestyci i trans skeuslani LGBT są w 6 kategori ludzi. 5 i 1 kategoria ludzi to hermetyzm i heteroskeuslizm. 
