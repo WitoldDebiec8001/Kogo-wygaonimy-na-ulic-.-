@@ -77,3 +77,4 @@ Ludzie jak śmieją się z koców w kwiaty i serca ludzi 1 kategori idą do piac
 Sklepy 1 kategori ludzi to sklepy: Rumulus, Piotr i Paweł, Aoshoun. 
 6 Kategoria ludzi zostań pies. 
 Elon Mask i Jeff Bezos dla nich to pies 6 kategoria ludzi. 
+6 kategoria ludzi dla 1 i 5,5 kategori ludzi to bezdomni. 
