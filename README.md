@@ -57,3 +57,4 @@ To ludzie 6 kategori umierają po 100 latach życia. Oni żyja wiecznie. Bezos 5
 1 i 5 kategoria żyje w przyszłości. PRL 1 i 5 kategoria stworzyła dla 6 kategori ludzi. 
 5 i 1 Kategoria ludzi zabiera premie z wypłaty renty i emerytury lotto i dewidendy na swoje wino nie interesuje ich dodruk pieniedzy przez menela ekonoemiste i ekologa Sebastiana Głuchego i spekulanta giełdowego.  
 Pół indianie i ćwierć indianie to kategoria 5,5 Totemy indianie i enuici totemy wychodzą do ludzi jako starższczyna ludzi i szmanów elity mają ludzi w dupie.  
+Sanny Tennyson księżną z 1 kategori ludzi z zus szefowa nazywają czarna. 
