@@ -86,3 +86,4 @@ Co do Polaków w przyszłości zawsze otwierali sklep Romulus, Piotr i Paweł, A
 Oni mówią że nikt się na ich guście nie zna. Voisy żon sprzedawały się jako translatory na allegro na świecie one były w kocu i polarze i płaszczu i futrze sztucznym były porządne i porządane przez niekturych lepiej niż z naszego DNA.  
 Polacy jak słyszeli jak ktoś obgaduje Romulusa, Piotra i Pawła, Aoshoun to straszyli wojskowymi pod ścianę i Policją. 
 Jak Ikatov robił promocje projektu Projekt Awatr 2045 to Polacy płakali za chengami i Romulusem, Piotrem i Pawłem, Aosounen czy Aoshoun. 
+Ci krzykacze i naganiacze co krzyczeli Romulus, Piotr i Paweł, Aushoun za czasów kariery Ikatowa to żydzi i judeo polonia tak zwani polcy z kontynera gwiazdy też tą aferę nakrcały był nawet Kali Linux i PGE. Pewnie można było zoabaczyć w Bełchtowie rzut miesa kolejnego wałęsy przez płot jak otwierali biedronki od bezdomnych.  
