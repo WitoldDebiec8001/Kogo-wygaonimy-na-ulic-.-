@@ -92,3 +92,4 @@ Co do kobiet one są matkami księży i wojwoników nie są normalne i kochając
 Wojskowe to oszuści jak i Policja co chce dać żone dom mieszkanie niż wygraną w lotto ich ustawki są złe i skoniczone. Szkoda im dodrukować pieniedzy z plastiku. 
 Przez tych ludzi nie było nic na koncie i w sklepie. Radio drukarka kwantowa może dać dużo rzeczy do sklepu dla nas w pudełku z internetu rzeczy off line.  
 Oszczędzaczyk i oszczędzacz to zachowania niepełnosprawnych co nic nie wiedzą o oszczędzaniu pieniedzy tylko słuchają elektryków i zadowalają się 100 zł oszczędności na 2 miesiące. 
+Oszczędacze to niepełnosprawni i huligany. Negocjonuje się cenne lub kupuje licznik na przepłaty lub zmienia operastora energi elektrycznej a nie wsadza się oszczędzacz lub robi się puszkę na zimna fuzje do licznika. Ci ludzie to kłamcy jak cały rząd tych post złodzieji post mafi i post morderców.  
